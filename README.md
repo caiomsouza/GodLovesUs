@@ -20,8 +20,10 @@ Matthew 6:33 (https://www.churchofjesuschrist.org/study/scriptures/nt/matt/6.33?
 
 #### Scriptures
 
-Bible 
+#### The Holy Bible: A Witness of Jesus Christ
+[![The Holy Bible: A Witness of Jesus Christ](http://img.youtube.com/vi/GtYpkAQGRkU/0.jpg)](https://www.youtube.com/embed/GtYpkAQGRkU
+ "The Holy Bible: A Witness of Jesus Christ")
 
-### The Book of Mormon 
+#### The Book of Mormon 
 [![The Book of Mormon](http://img.youtube.com/vi/nyV61Hh9KdA/0.jpg)](https://www.youtube.com/embed/nyV61Hh9KdA
  "The Book of Mormon")
