@@ -8,6 +8,16 @@ John 3:16<b>
 #### What Is the Purpose and Meaning of Life?
 [![What Is the Purpose and Meaning of Life?](http://i.imgur.com/t9iYqKk00Bc.png)](https://youtu.be/t9iYqKk00Bc "What Is the Purpose and Meaning of Life?")
 
+
+sss
+
+
+
+[![What Is the Purpose and Meaning of Life?](http://img.youtube.com/vi/t9iYqKk00Bc/0.jpg)](https://www.youtube.com/embed/t9iYqKk00Bc
+ "What Is the Purpose and Meaning of Life?")
+
+
+
 #### Building Zion
 https://www.churchofjesuschrist.org/study/liahona/1977/09/building-zion?lang=eng
 
