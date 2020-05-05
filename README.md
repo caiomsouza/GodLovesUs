@@ -2,12 +2,12 @@
 
 This is a personal repo to help me to remember the love of God for us. 
 
-<b>For God so loved the world, that he gave his only Son, that whoever believes in him should not perish but have eternal life.
-John 3:16</b>
+For God so loved the world, that he gave his only Son, that whoever believes in him should not perish but have eternal life.
+<b>John 3:16</b>
  
-<b>Humble yourselves therefore under the mighty hand of God, that he may exalt you in due time:
+Humble yourselves therefore under the mighty hand of God, that he may exalt you in due time:
 Casting all your care upon him; for he careth for you.
-1 Peter 5:6-7</b>
+<b>1 Peter 5:6-7</b>
 
 #### What Is the Purpose and Meaning of Life?
 [![What Is the Purpose and Meaning of Life?](http://img.youtube.com/vi/t9iYqKk00Bc/0.jpg)](https://www.youtube.com/embed/t9iYqKk00Bc
