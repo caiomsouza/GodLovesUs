@@ -6,7 +6,7 @@ This is a personal repo to help me to remember the love of God for us.
 John 3:16<b>
 
 #### What Is the Purpose and Meaning of Life?
-<iframe width="560" height="315" src="https://www.youtube.com/embed/t9iYqKk00Bc" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+[![What Is the Purpose and Meaning of Life?](http://i.imgur.com/t9iYqKk00Bc.png)](https://youtu.be/t9iYqKk00Bc "What Is the Purpose and Meaning of Life?")
 
 #### Building Zion
 https://www.churchofjesuschrist.org/study/liahona/1977/09/building-zion?lang=eng
