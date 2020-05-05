@@ -9,6 +9,9 @@ Humble yourselves therefore under the mighty hand of God, that he may exalt you 
 Casting all your care upon him; for he careth for you.
 <b>1 Peter 5:6-7</b>
 
+But seek ye first the kingdom of God, and his righteousness; and all these things shall be added unto you.
+<b>Matthew 6:33</b> (https://www.churchofjesuschrist.org/study/scriptures/nt/matt/6.33?lang=eng#p33#33 )
+
 #### What Is the Purpose and Meaning of Life?
 [![What Is the Purpose and Meaning of Life?](http://img.youtube.com/vi/t9iYqKk00Bc/0.jpg)](https://www.youtube.com/embed/t9iYqKk00Bc
  "What Is the Purpose and Meaning of Life?")
@@ -18,9 +21,6 @@ https://www.churchofjesuschrist.org/study/liahona/1977/09/building-zion?lang=eng
 
 #### Kingdom of God
 https://www.churchofjesuschrist.org/study/scriptures/gs/kingdom-of-god-or-kingdom-of-heaven?lang=eng
-
-But seek ye first the kingdom of God, and his righteousness; and all these things shall be added unto you.
-Matthew 6:33 (https://www.churchofjesuschrist.org/study/scriptures/nt/matt/6.33?lang=eng#p33#33 )
 
 #### Scriptures
 
