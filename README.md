@@ -14,3 +14,9 @@ https://www.churchofjesuschrist.org/study/scriptures/gs/kingdom-of-god-or-kingdo
 But seek ye first the kingdom of God, and his righteousness; and all these things shall be added unto you.
 Matthew 6:33 (https://www.churchofjesuschrist.org/study/scriptures/nt/matt/6.33?lang=eng#p33#33 )
 
+#### Scriptures
+
+Bible 
+
+The Book of Mormon 
+https://youtu.be/nyV61Hh9KdA
