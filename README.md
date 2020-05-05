@@ -5,10 +5,10 @@ This is a personal repo to help me to remember the love of God for us.
 <b>For God so loved the world, that he gave his only Son, that whoever believes in him should not perish but have eternal life.
 John 3:16<b>
 
-### Building Zion
+#### Building Zion
 https://www.churchofjesuschrist.org/study/liahona/1977/09/building-zion?lang=eng
 
-### Kingdom of God
+#### Kingdom of God
 https://www.churchofjesuschrist.org/study/scriptures/gs/kingdom-of-god-or-kingdom-of-heaven?lang=eng
 
 But seek ye first the kingdom of God, and his righteousness; and all these things shall be added unto you.
