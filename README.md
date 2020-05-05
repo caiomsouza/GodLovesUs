@@ -5,6 +5,9 @@ This is a personal repo to help me to remember the love of God for us.
 <b>For God so loved the world, that he gave his only Son, that whoever believes in him should not perish but have eternal life.
 John 3:16<b>
 
+#### What Is the Purpose and Meaning of Life?
+<iframe width="560" height="315" src="https://www.youtube.com/embed/t9iYqKk00Bc" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
 #### Building Zion
 https://www.churchofjesuschrist.org/study/liahona/1977/09/building-zion?lang=eng
 
